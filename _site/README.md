@@ -1,1 +1,0 @@
-# yotkat.github.io
